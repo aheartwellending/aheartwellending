@@ -2,8 +2,8 @@
 <img src="https://files.catbox.moe/jxetaa.png" width="260" height="~" align="left" hspace="0" alt="gee"/>
 
 $\color{#9764a3}{\textsf{gerard, skips}}$
-</sup>$\color{#e2e2e2}{\textsf{or}}$
-</sup>$\color{#9764a3}{\textsf{dominik}}$ <br>
+<sup>$\color{#e2e2e2}{\textsf{ㅤorㅤ}}$</sup>
+$\color{#9764a3}{\textsf{dominik}}$ <br>
 <sub>$\color{#e2e2e2}{\textsf{deceased since 2007}}$</sub> <br>
 <sup>$\color{#e2e2e2}{\textsf{he/himㅤ+ㅤmasculine terms}}$</sup> <br>
 
