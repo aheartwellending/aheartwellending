@@ -6,11 +6,11 @@ $\color{#9764a3}{\textsf{gerard, skips}}$
 </sup>$\color{#9764a3}{\textsf{dominik}}$ <br>
 <sub>$\color{#e2e2e2}{\textsf{deceased since 2007}}$</sub> <br>
 <sup>$\color{#e2e2e2}{\textsf{he/himㅤ+ㅤmasculine terms}}$</sup> <br>
-i consider myself a pretty low and also very handsome awkward kinda guy <br>
-this git is a big wip, ignore how bareboned it is. it's very self aware. <br>
 
-![](https://komarev.com/ghpvc/?username=aheartwellending&color=000000&label=ㅤㅤㅤtulipsㅤㅤㅤ) <br>
+a pretty low very handsome awkward kinda guy <br>
 
+<img src="https://api.visitorbadge.io/api/visitors?path=aheartwellending&label=tulips&labelColor=000000&countColor=000000&style=flat"> <br>
+
+[byi & dni (.cc)](https://pronouns.cc/@aheartwellending)ㅤ[crrd](https://7-trials.carrd.co)ㅤ[prns.page](https://en.pronouns.page/@j777ckpot) <br>
 [新book](https://aheartwellending.atabook.org)ㅤ[straw.page](https://a-heartwell-ending.straw.page) <br>
-<sup>\* *strawpage isn't decorated yet, but you're welcome to leave a message/draw on it* : )</sup>
 ㅤ<br>
